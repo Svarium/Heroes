@@ -5,4 +5,4 @@
 ####- Sebastian Gallardo
 ####- Jose Luis Acevedo - 33 años - bella vista
 ####- Marcos Borquez
-####- Ezequiel Muñoz
+####- Ezequiel Muñoz - 31 años - Lanus

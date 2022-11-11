@@ -2,7 +2,7 @@
 
 ##Integrantes del Equipo:
 
-####- Sebastian Gallardo
+####- Sebastian Gallardo - 22 años - lanus
 ####- Jose Luis Acevedo
 ####- Marcos Borquez
 ####- Ezequiel Muñoz
